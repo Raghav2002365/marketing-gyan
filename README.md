@@ -1,1 +1,1 @@
-# marketing-gyan
+marketing-gyan.github.io
