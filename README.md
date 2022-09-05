@@ -1,1 +1,1 @@
-<a href="https://raghavkrishnet.github.io/marketing-gyan/">https://raghavkrishnet.github.io/marketing-gyan/</a>
+<a href="https://raghavkrishnet.github.io/ARYA-e-commerce/">https://raghavkrishnet.github.io/ARYA-e-commerce/</a>
