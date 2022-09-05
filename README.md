@@ -1,1 +1,1 @@
-# marketing-gyan.github.io
+# https://raghavkrishnet.github.io/marketing-gyan/
